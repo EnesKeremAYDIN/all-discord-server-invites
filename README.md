@@ -1,1 +1,1 @@
-# all-discord-server-invites 
+# all-discord-server-invites
